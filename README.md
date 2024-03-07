@@ -1,1 +1,1 @@
-# Interns-Training
+# Interns-Training for beginners
